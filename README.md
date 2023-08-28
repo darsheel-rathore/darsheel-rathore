@@ -11,7 +11,7 @@
 🤝 Collaborative Spirit: Excel in cross-functional teams, communicating complex concepts for seamless workflows and shared visions.
 
 ## My Journey:
-From indie gems to larger studio productions, my experiences span genres and platforms, contributing to my growth and expertise in game development.
+From indie gems to studio productions, my experiences span genres and platforms, contributing to my growth and expertise in game development.
 
 ## What's Next:
 Committed to staying at the forefront of this dynamic field, I'm excited to continue crafting exceptional gaming experiences, leveraging cutting-edge technologies and storytelling techniques.
